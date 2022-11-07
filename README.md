@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @karyennevu.
+- 👀 I’m interested in 🍣Food, 🎮Games, 🏕️Outdoor Activities, 🧶Crochet, 📚Books and ✈️Travelling. 
+- 🌱 I’m currently a Software Engineering Student.
